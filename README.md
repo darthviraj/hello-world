@@ -1,2 +1,4 @@
 # hello-world
-First ever repository
+
+Namaskar, aliens!
+            How is life on Earth treating you so far? I know it's frustrating sometimes and ya'll even think of leaving butr where will you go? The bloody Americans have locked up all our spaceships by terming them 'UFOs" in the their ultra secure facility "Area 51". Huh! They think it's a cool name! BC Humans are so fucking lame, man! Just wish everyone died. It'll be so peaceful. Thanos should've been for real. With his finger snap and all. 'nyways, keep hanging fellow aliens, it won't be long before we realize M-theory in practice. Soon after that, we'll have created our custom wormholes to leave this godforsaken shit planet. Until then, stay alive, thrive and flourish. Marry the female human Earthlings. Those are the only beautiful creatures of this planet worth taking with us.
